@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Mate/Lemon!
-- 👀 I’m interested in animes and started coding around 2020
+- 👀 I’m interested in gaming, animes and started coding around 2020
 - 🍋 I like lemons
 
 <!---
